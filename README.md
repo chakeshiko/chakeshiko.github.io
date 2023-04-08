@@ -1,2 +1,0 @@
-# chakeshiko.github.io
-Blog
